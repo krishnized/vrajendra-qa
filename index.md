@@ -1,3 +1,5 @@
+# Вопросы-ответы [![youtube](https://img.shields.io/badge/--green?style=social&logo=youtube)](https://www.youtube.com/playlist?list=PL_Ipm4Rf9xvHEN4mzo8keCRb7EsC03xVO) [![github](https://img.shields.io/badge/--green?style=social&logo=github)](https://github.com/krishnized/vrajendra-qa)
+
 ## [Выпуск #51](https://youtu.be/VMhyhS-3Gwk)
 
 * [0:46](https://youtu.be/VMhyhS-3Gwk?t=0m46s) − Книга "Кришна" − описывает хронологические события или нет? В 11 главе написано: "Вскоре мальчики, Кришна и Баларама, подросли и стали разговаривать на своем детском языке". Предыдущие главы...
