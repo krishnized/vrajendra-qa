@@ -1,4 +1,12 @@
 ## [Выпуск #58](https://youtu.be/keGo27m_LwM)
+* [0:23](https://youtu.be/keGo27m_LwM?t=0m23s) − _Инна_: Что стало с детьми Кришны? У него было 16108 жен, каждая родила больше 10 детей. Участвовали ли его дети в войне?
+* [9:38](https://youtu.be/keGo27m_LwM?t=9m38s) − _Елена Бактыбаевна_: Не верила в существование святых у христиан, теперь поняла, что они существуют, и мысленно попросила прощение за неверие. Правильно ли я сделала? Как не совершать таких ошибок?
+* [:](https://youtu.be/keGo27m_LwM?t=ms) − __:
+* [:](https://youtu.be/keGo27m_LwM?t=ms) − __:
+* [:](https://youtu.be/keGo27m_LwM?t=ms) − __:
+* [:](https://youtu.be/keGo27m_LwM?t=ms) − __:
+* [:](https://youtu.be/keGo27m_LwM?t=ms) − __:
+* [:](https://youtu.be/keGo27m_LwM?t=ms) − __:
 * [:](https://youtu.be/keGo27m_LwM?t=ms) − __:
 * [:](https://youtu.be/keGo27m_LwM?t=ms) − __:
 
