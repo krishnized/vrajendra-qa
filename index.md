@@ -1,3 +1,11 @@
+## [Выпуск #60](https://youtu.be/MhSTkclQ7aU)
+* [:](https://youtu.be/MhSTkclQ7aU?t=ms) − __:
+* [:](https://youtu.be/MhSTkclQ7aU?t=ms) − __:
+* [:](https://youtu.be/MhSTkclQ7aU?t=ms) − __:
+* [:](https://youtu.be/MhSTkclQ7aU?t=ms) − __:
+* [:](https://youtu.be/MhSTkclQ7aU?t=ms) − __:
+* [:](https://youtu.be/MhSTkclQ7aU?t=ms) − __:
+
 ## [Выпуск #59](https://youtu.be/9BV8jO8V8hE)
 * [0:20](https://youtu.be/9BV8jO8V8hE?t=0m20s) − _Михаил_: Есть ли возможность перерождения в человеческой форме, учитывая, что время человечества подходит к концу. Время — условная категория, возможно перерождение в прошлое?
 * [2:17](https://youtu.be/9BV8jO8V8hE?t=2m17s) − _Артём_: Что такое лунатизм (сомнамбулизм)? Это одержимость духами или расстройство психики?
