@@ -1,3 +1,11 @@
+## [Выпуск #63](https://youtu.be/Tg4d_I4ou9M)
+
+* [:](https://youtu.be/Tg4d_I4ou9M?t=ms) − __:
+* [:](https://youtu.be/Tg4d_I4ou9M?t=ms) − __:
+* [:](https://youtu.be/Tg4d_I4ou9M?t=ms) − __:
+* [:](https://youtu.be/Tg4d_I4ou9M?t=ms) − __:
+* [:](https://youtu.be/Tg4d_I4ou9M?t=ms) − __:
+
 ## [Выпуск #62](https://youtu.be/t8Y3IN2DkQA)
 
 * [0:55](https://youtu.be/t8Y3IN2DkQA?t=0m55s) − _Владислав Мизернюк_: В Ведах говорится о 400000 видах человеческой жизни, а сколько видов на Земле? Негроидная раса — одна форма жизни, европеидная — другая, монголоидная — третья, или это все представители одного вида?
