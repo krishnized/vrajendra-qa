@@ -1,3 +1,13 @@
+## [Выпуск #69](https://youtu.be/g-srHgIpQFY)
+
+* [1:21](https://youtu.be/g-srHgIpQFY?t=1m21s) − _Враджендра_: Как мы узнаем, что наступает новый год?
+* [:](https://youtu.be/g-srHgIpQFY?t=ms) − __:
+* [:](https://youtu.be/g-srHgIpQFY?t=ms) − __:
+* [:](https://youtu.be/g-srHgIpQFY?t=ms) − __:
+* [:](https://youtu.be/g-srHgIpQFY?t=ms) − __:
+* [:](https://youtu.be/g-srHgIpQFY?t=ms) − __:
+* [:](https://youtu.be/g-srHgIpQFY?t=ms) − __:
+
 ## [Выпуск #68](https://youtu.be/PIoTmWtgbnw)
 
 * [2:34](https://youtu.be/PIoTmWtgbnw?t=2m34s) − _Анастасия_: Что такое телепатия? #ашта-сиддхи #прапти-сиддхи
