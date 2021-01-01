@@ -1,8 +1,8 @@
 ## [Выпуск #69](https://youtu.be/g-srHgIpQFY)
 
-* [1:21](https://youtu.be/g-srHgIpQFY?t=1m21s) − _Враджендра_: Как мы узнаем, что наступает новый год?
-* [:](https://youtu.be/g-srHgIpQFY?t=ms) − __:
-* [:](https://youtu.be/g-srHgIpQFY?t=ms) − __:
+* [1:21](https://youtu.be/g-srHgIpQFY?t=1m21s) − _Враджендра Кумар_: Как мы узнаем, что наступает новый год?
+* [4:32](https://youtu.be/g-srHgIpQFY?t=4m32s) − _Майя_: Будет ли человек перевоплощаться, если ему полагается возврат кармического долга от другого, но он сам больше не имеет кармы и претендует на освобождение?
+* [10:51](https://youtu.be/g-srHgIpQFY?t=10m51s) − _Майя_: Что будет с человеком, который готов к освобождению, но при этом не стал чистым преданным?
 * [:](https://youtu.be/g-srHgIpQFY?t=ms) − __:
 * [:](https://youtu.be/g-srHgIpQFY?t=ms) − __:
 * [:](https://youtu.be/g-srHgIpQFY?t=ms) − __:
