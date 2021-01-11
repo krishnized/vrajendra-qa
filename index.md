@@ -5,7 +5,13 @@
 * [14:16](https://youtu.be/lWivc0duez8?t=14m16s) − _Андрей_: Назовите датированный источник запрещения на вкушение мяса.
 * [17:28](https://youtu.be/lWivc0duez8?t=17m28s) − _Андрей_: Почему вы отрицаете термин язычество по отношению к вам, ведь вы признаете нескольких богов?
 * [21:07](https://youtu.be/lWivc0duez8?t=21m07s) − _Андрей_: Почему кришнаиты не признают божественную волю Иисуса Христа?
-* [24:44](https://youtu.be/lWivc0duez8?t=24m44s) − _Путь Истины_:
+* [24:44](https://youtu.be/lWivc0duez8?t=24m44s) − _Путь Истины_: Как развивать искренние отношения с Господом, а не делать всё на автомате?
+* [26:59](https://youtu.be/lWivc0duez8?t=26m59s) − _Путь Истины_: Если бы был легкий вариант уйти от реальности Кали-Юги, то я бы не выбрал путь к Богу. Как научиться желать искренних отношений с Богом?
+* [:](https://youtu.be/lWivc0duez8?t=ms) − __:
+* [:](https://youtu.be/lWivc0duez8?t=ms) − __:
+* [:](https://youtu.be/lWivc0duez8?t=ms) − __:
+* [:](https://youtu.be/lWivc0duez8?t=ms) − __:
+* [:](https://youtu.be/lWivc0duez8?t=ms) − __:
 * [:](https://youtu.be/lWivc0duez8?t=ms) − __:
 * [:](https://youtu.be/lWivc0duez8?t=ms) − __:
 * [:](https://youtu.be/lWivc0duez8?t=ms) − __:
