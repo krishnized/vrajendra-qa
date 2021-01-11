@@ -1,3 +1,14 @@
+## [Выпуск #70](https://youtu.be/lWivc0duez8)
+
+* [2:20](https://youtu.be/lWivc0duez8?t=2m20s) − _Андрей_: Каким образом было доказано перерождение? См. Ян Стивенсон.
+* [7:43](https://youtu.be/lWivc0duez8?t=7m43s) − _Андрей_: Назовите датированный источник Вед.
+* [14:16](https://youtu.be/lWivc0duez8?t=14m16s) − _Андрей_:  Назовите датированный источник запрещения на вкушение мяса.
+* [:](https://youtu.be/lWivc0duez8?t=ms) − __:
+* [:](https://youtu.be/lWivc0duez8?t=ms) − __:
+* [:](https://youtu.be/lWivc0duez8?t=ms) − __:
+* [:](https://youtu.be/lWivc0duez8?t=ms) − __:
+* [:](https://youtu.be/lWivc0duez8?t=ms) − __:
+
 ## [Выпуск #69](https://youtu.be/g-srHgIpQFY)
 
 * [1:21](https://youtu.be/g-srHgIpQFY?t=1m21s) − _Враджендра Кумар Дас_: Как мы узнаем, что наступает новый год?
