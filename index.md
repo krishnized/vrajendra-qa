@@ -2,9 +2,10 @@
 
 * [2:20](https://youtu.be/lWivc0duez8?t=2m20s) − _Андрей_: Каким образом было доказано перерождение? См. Ян Стивенсон.
 * [7:43](https://youtu.be/lWivc0duez8?t=7m43s) − _Андрей_: Назовите датированный источник Вед.
-* [14:16](https://youtu.be/lWivc0duez8?t=14m16s) − _Андрей_:  Назовите датированный источник запрещения на вкушение мяса.
-* [:](https://youtu.be/lWivc0duez8?t=ms) − __:
-* [:](https://youtu.be/lWivc0duez8?t=ms) − __:
+* [14:16](https://youtu.be/lWivc0duez8?t=14m16s) − _Андрей_: Назовите датированный источник запрещения на вкушение мяса.
+* [17:28](https://youtu.be/lWivc0duez8?t=17m28s) − _Андрей_: Почему вы отрицаете термин язычество по отношению к вам, ведь вы признаете нескольких богов?
+* [21:07](https://youtu.be/lWivc0duez8?t=21m07s) − _Андрей_: Почему кришнаиты не признают божественную волю Иисуса Христа?
+* [24:44](https://youtu.be/lWivc0duez8?t=24m44s) − _Путь Истины_:
 * [:](https://youtu.be/lWivc0duez8?t=ms) − __:
 * [:](https://youtu.be/lWivc0duez8?t=ms) − __:
 * [:](https://youtu.be/lWivc0duez8?t=ms) − __:
