@@ -1,6 +1,6 @@
 ## [Выпуск #71](https://youtu.be/1HOpz7H3jFM)
 
-* [:](https://youtu.be/1HOpz7H3jFM?t=ms) − __:
+* [2:54](https://youtu.be/1HOpz7H3jFM?t=2m54s) − _Раман_: Опишите состояние таранга-рангини.
 * [:](https://youtu.be/1HOpz7H3jFM?t=ms) − __:
 * [:](https://youtu.be/1HOpz7H3jFM?t=ms) − __:
 * [:](https://youtu.be/1HOpz7H3jFM?t=ms) − __:
