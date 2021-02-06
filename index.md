@@ -1,7 +1,7 @@
 ## [Выпуск #71](https://youtu.be/1HOpz7H3jFM)
 
 * [2:54](https://youtu.be/1HOpz7H3jFM?t=2m54s) − _Раман_: Опишите состояние таранга-рангини.
-* [:](https://youtu.be/1HOpz7H3jFM?t=ms) − __:
+* [9:18](https://youtu.be/1HOpz7H3jFM?t=9m18s) − _Елизавета_: Стоит ли вообще привязываться к кому-либо, кроме Святого Имени, Священных писаний, прасада и других прямых проявлений Бога?
 * [:](https://youtu.be/1HOpz7H3jFM?t=ms) − __:
 * [:](https://youtu.be/1HOpz7H3jFM?t=ms) − __:
 * [:](https://youtu.be/1HOpz7H3jFM?t=ms) − __:
