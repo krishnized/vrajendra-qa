@@ -10,10 +10,14 @@
 * [32:18](https://youtu.be/1HOpz7H3jFM?t=32m18s) − _Светлана_: Как ведические знания объясняют Баба-Ягу?
 * [36:14](https://youtu.be/1HOpz7H3jFM?t=36m14s) − _Семен_: Камеры МКС зафиксировали НЛО. Кто это? Коронавирус - совпадение?
 * [41:50](https://youtu.be/1HOpz7H3jFM?t=41m50s) − _Оксана_: Что такое Нирвана Парамам? Это освобождение? Программы ума нужно переписать, а не подавлять желания?
-* [:](https://youtu.be/1HOpz7H3jFM?t=ms) − __:
-* [:](https://youtu.be/1HOpz7H3jFM?t=ms) − __:
-* [:](https://youtu.be/1HOpz7H3jFM?t=ms) − __:
-* [:](https://youtu.be/1HOpz7H3jFM?t=ms) − __:
+* [48:10](https://youtu.be/1HOpz7H3jFM?t=48m10s) − _Сергей_: Как происходит смена дня и ночи на нашей варше?
+* [55:25](https://youtu.be/1HOpz7H3jFM?t=55m25s) − _Николай Львович_: К какой гуне относится работа массажиста? Как опрелить, соответствует ли специалист квалификации?
+* [1:01:08](https://youtu.be/1HOpz7H3jFM?t=1h01m08s) − _Елена_:
+* [1::](https://youtu.be/1HOpz7H3jFM?t=1hms) − __:
+* [1::](https://youtu.be/1HOpz7H3jFM?t=1hms) − __:
+* [1::](https://youtu.be/1HOpz7H3jFM?t=1hms) − __:
+* [1::](https://youtu.be/1HOpz7H3jFM?t=1hms) − __:
+* [1::](https://youtu.be/1HOpz7H3jFM?t=1hms) − __:
 
 ## [Выпуск #70](https://youtu.be/lWivc0duez8)
 
