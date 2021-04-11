@@ -1,3 +1,11 @@
+## [Выпуск #75](https://youtu.be/490mVmwml1E)
+
+* [:](https://youtu.be/490mVmwml1E?t=ms) − __:
+* [:](https://youtu.be/490mVmwml1E?t=ms) − __:
+* [:](https://youtu.be/490mVmwml1E?t=ms) − __:
+* [:](https://youtu.be/490mVmwml1E?t=ms) − __:
+* [:](https://youtu.be/490mVmwml1E?t=ms) − __:
+
 ## [Выпуск #74](https://youtu.be/pVKczfpAfW8)
 
 * [2:11](https://youtu.be/pVKczfpAfW8?t=2m11s) − _Дмитрий_: Могут ли мусульмане попасть на Вайкунтху?
