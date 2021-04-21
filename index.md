@@ -1,3 +1,14 @@
+## [Выпуск #76](https://youtu.be/xfrsKbgsY28)
+
+* [1:03](https://youtu.be/xfrsKbgsY28?t=1m03s) − _Сергей_:
+* [:](https://youtu.be/xfrsKbgsY28?t=ms) − __:
+* [:](https://youtu.be/xfrsKbgsY28?t=ms) − __:
+* [:](https://youtu.be/xfrsKbgsY28?t=ms) − __:
+* [:](https://youtu.be/xfrsKbgsY28?t=ms) − __:
+* [:](https://youtu.be/xfrsKbgsY28?t=ms) − __:
+* [:](https://youtu.be/xfrsKbgsY28?t=ms) − __:
+
+
 ## [Выпуск #75](https://youtu.be/490mVmwml1E)
 
 * [0:18](https://youtu.be/490mVmwml1E?t=0m18s) − _Сергей_: В [ШБ 3.31.9](https://vedabase.io/ru/library/sb/3/31/9/) «Лишенный свободы передвижения, ребенок заключен в утробе матери, как птица в клетке. В это время, если судьба благосклонна к нему, он вспоминает обо всех перипетиях ста своих предыдущих жизней, и память о них причиняет ему жестокие страдания. Может ли он оставаться спокойным в такой ситуации?».<br/>Что значит «судьба благосклонна к нему»?
