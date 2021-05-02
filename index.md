@@ -1,6 +1,6 @@
 ## [Выпуск #77](https://youtu.be/yjdhwnZXDnc)
 
-* [:](https://youtu.be/yjdhwnZXDnc?t=ms) − __:
+* [3:05](https://youtu.be/yjdhwnZXDnc?t=3m05s) − Можно ли помогать другим своими молитвами?
 * [:](https://youtu.be/yjdhwnZXDnc?t=ms) − __:
 * [:](https://youtu.be/yjdhwnZXDnc?t=ms) − __:
 * [:](https://youtu.be/yjdhwnZXDnc?t=ms) − __:
