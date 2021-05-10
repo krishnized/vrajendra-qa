@@ -1,3 +1,12 @@
+## [Выпуск #78](https://youtu.be/jrxcNB-xQVk)
+
+* [:](https://youtu.be/jrxcNB-xQVk?t=ms) − __:
+* [:](https://youtu.be/jrxcNB-xQVk?t=ms) − __:
+* [:](https://youtu.be/jrxcNB-xQVk?t=ms) − __:
+* [:](https://youtu.be/jrxcNB-xQVk?t=ms) − __:
+* [:](https://youtu.be/jrxcNB-xQVk?t=ms) − __:
+
+
 ## [Выпуск #77](https://youtu.be/yjdhwnZXDnc)
 
 * [3:05](https://youtu.be/yjdhwnZXDnc?t=3m05s) − Можно ли помогать другим своими молитвами?
