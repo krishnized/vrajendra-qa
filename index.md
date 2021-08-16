@@ -1,3 +1,15 @@
+## [Выпуск #85](https://youtu.be/UdowDft9XLQ)
+
+* [3:25](https://youtu.be/UdowDft9XLQ?t=3m25s) − _Иван_: В детстве видел приведение - маленькая бледная девочка с аурой. С тех пор нет. Что это могло быть?
+* [:](https://youtu.be/UdowDft9XLQ?t=ms) − __:
+* [:](https://youtu.be/UdowDft9XLQ?t=ms) − __:
+* [:](https://youtu.be/UdowDft9XLQ?t=ms) − __:
+* [:](https://youtu.be/UdowDft9XLQ?t=ms) − __:
+* [:](https://youtu.be/UdowDft9XLQ?t=ms) − __:
+* [:](https://youtu.be/UdowDft9XLQ?t=ms) − __:
+* [:](https://youtu.be/UdowDft9XLQ?t=ms) − __:
+* [:](https://youtu.be/UdowDft9XLQ?t=ms) − __:
+
 ## [Выпуск #84](https://youtu.be/oOovML7wf7Y)
 
 * [0:36](https://youtu.be/oOovML7wf7Y?t=0:36) − _Ирина_: Кришна говорит: «Среди правителей я есть царь». Получается правитель страны дается высшими силами, но иногда сомневаешься в этом. Если президент совершает что-то плохое — получается, высшие силы допускают это? Несет ли правитель ответственность за свои действия, или он лишь орудие?
