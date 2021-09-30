@@ -1,3 +1,19 @@
+## [Выпуск #87](https://youtu.be/3sb0zf3bPPY)
+
+* [0:18](https://youtu.be/3sb0zf3bPPY?t=0m18s) − _Маришка_: Вы назвали заблуждение одной из функций разума. Заблуждение встроено в нас? Как убедить человека, что он заблуждается? Оно дано для разнообразия мнений?
+* [5:40](https://youtu.be/3sb0zf3bPPY?t=5m40s) − _Иван_: Когда муж жену отдает для утех другому - это варварство, как такая цивилизация могла существовать?
+* [10:57](https://youtu.be/3sb0zf3bPPY?t=10m57s) − _Ирина_: Почему возникает зависть к богатым друзьям?
+* [:](https://youtu.be/3sb0zf3bPPY?t=ms) − __:
+* [:](https://youtu.be/3sb0zf3bPPY?t=ms) − __:
+* [:](https://youtu.be/3sb0zf3bPPY?t=ms) − __:
+* [:](https://youtu.be/3sb0zf3bPPY?t=ms) − __:
+* [:](https://youtu.be/3sb0zf3bPPY?t=ms) − __:
+* [:](https://youtu.be/3sb0zf3bPPY?t=ms) − __:
+* [:](https://youtu.be/3sb0zf3bPPY?t=ms) − __:
+* [:](https://youtu.be/3sb0zf3bPPY?t=ms) − __:
+* [:](https://youtu.be/3sb0zf3bPPY?t=ms) − __:
+
+
 ## [Выпуск #86](https://youtu.be/gRg4K9e4tfY)
 
 * [1:14](https://youtu.be/gRg4K9e4tfY?t=1m14s) − _Дос_: Что вы думаете про оргон, который открыл Вильгельм Райх?
