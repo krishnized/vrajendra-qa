@@ -1,3 +1,19 @@
+## [Выпуск #89](https://youtu.be/k0fN1VZxeEk)
+
+* [0:](https://youtu.be/k0fN1VZxeEk?t=0ms) − __:
+* [:](https://youtu.be/k0fN1VZxeEk?t=ms) − __:
+* [:](https://youtu.be/k0fN1VZxeEk?t=ms) − __:
+* [:](https://youtu.be/k0fN1VZxeEk?t=ms) − __:
+* [:](https://youtu.be/k0fN1VZxeEk?t=ms) − __:
+* [:](https://youtu.be/k0fN1VZxeEk?t=ms) − __:
+* [:](https://youtu.be/k0fN1VZxeEk?t=ms) − __:
+* [:](https://youtu.be/k0fN1VZxeEk?t=ms) − __:
+* [:](https://youtu.be/k0fN1VZxeEk?t=ms) − __:
+* [:](https://youtu.be/k0fN1VZxeEk?t=ms) − __:
+* [:](https://youtu.be/k0fN1VZxeEk?t=ms) − __:
+* [:](https://youtu.be/k0fN1VZxeEk?t=ms) − __:
+* [:](https://youtu.be/k0fN1VZxeEk?t=ms) − __:
+
 ## [Выпуск #88](https://youtu.be/cNNeIZ3exys)
 
 * [0:55](https://youtu.be/cNNeIZ3exys?t=0m55s) − _Миша Варвин_: Некоторые христиане обвиняют кришнаитов в экстремизме — отречение от семьи и пр, но Иисус говорил, что враги человека — ближние его, и призывал оставить дом и идти за ним. Это не то же самое?
