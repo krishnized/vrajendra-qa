@@ -1,18 +1,18 @@
-## [Выпуск #89](https://youtu.be/k0fN1VZxeEk)
+## [Выпуск #89](https://youtu.be/zN5Fjj4la54)
 
-* [0:](https://youtu.be/k0fN1VZxeEk?t=0ms) − __:
-* [:](https://youtu.be/k0fN1VZxeEk?t=ms) − __:
-* [:](https://youtu.be/k0fN1VZxeEk?t=ms) − __:
-* [:](https://youtu.be/k0fN1VZxeEk?t=ms) − __:
-* [:](https://youtu.be/k0fN1VZxeEk?t=ms) − __:
-* [:](https://youtu.be/k0fN1VZxeEk?t=ms) − __:
-* [:](https://youtu.be/k0fN1VZxeEk?t=ms) − __:
-* [:](https://youtu.be/k0fN1VZxeEk?t=ms) − __:
-* [:](https://youtu.be/k0fN1VZxeEk?t=ms) − __:
-* [:](https://youtu.be/k0fN1VZxeEk?t=ms) − __:
-* [:](https://youtu.be/k0fN1VZxeEk?t=ms) − __:
-* [:](https://youtu.be/k0fN1VZxeEk?t=ms) − __:
-* [:](https://youtu.be/k0fN1VZxeEk?t=ms) − __:
+* [0:20](https://youtu.be/zN5Fjj4la54?t=0m20s) − _Адбхута Мандала Раджа Дас_: В ШБ 9.2.15 описывается история царя Гадхи и мудреца Ричики. Мать из зависти к дочери съедает жертвенный дар, проявляя неуважение к зятю-брахману. Жена слушается мать, нарушая указания мужа. Прокомментируйте эту историю.
+* [5:25](https://youtu.be/zN5Fjj4la54?t=5m25s) − _Вахо_: Есть сходство в истории про Нараду и слона в игольном ушке, и проповедью Христа о верблюде в игольном ушке. Почему так?
+* [8:55](https://youtu.be/zN5Fjj4la54?t=8m55s) − _Олег_: Что вы думаете о Махенджа-Даро? Есть ли в Ведах описание ядерного оружия и его применение в древности?
+* [:](https://youtu.be/zN5Fjj4la54?t=ms) − __:
+* [:](https://youtu.be/zN5Fjj4la54?t=ms) − __:
+* [:](https://youtu.be/zN5Fjj4la54?t=ms) − __:
+* [:](https://youtu.be/zN5Fjj4la54?t=ms) − __:
+* [:](https://youtu.be/zN5Fjj4la54?t=ms) − __:
+* [:](https://youtu.be/zN5Fjj4la54?t=ms) − __:
+* [:](https://youtu.be/zN5Fjj4la54?t=ms) − __:
+* [:](https://youtu.be/zN5Fjj4la54?t=ms) − __:
+* [:](https://youtu.be/zN5Fjj4la54?t=ms) − __:
+* [:](https://youtu.be/zN5Fjj4la54?t=ms) − __:
 
 ## [Выпуск #88](https://youtu.be/cNNeIZ3exys)
 
