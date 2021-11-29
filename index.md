@@ -1,3 +1,21 @@
+## [Выпуск #91](https://youtu.be/eq8aRM8hdAg)
+
+* [4:55](https://youtu.be/eq8aRM8hdAg?t=4m55s) − _Ирина_: Как бороться с откладыванием дел на потом (прокрастинация)?
+* [:](https://youtu.be/eq8aRM8hdAg?t=ms) − __:
+* [:](https://youtu.be/eq8aRM8hdAg?t=ms) − __:
+* [:](https://youtu.be/eq8aRM8hdAg?t=ms) − __:
+* [:](https://youtu.be/eq8aRM8hdAg?t=ms) − __:
+* [:](https://youtu.be/eq8aRM8hdAg?t=ms) − __:
+* [:](https://youtu.be/eq8aRM8hdAg?t=ms) − __:
+* [:](https://youtu.be/eq8aRM8hdAg?t=ms) − __:
+* [:](https://youtu.be/eq8aRM8hdAg?t=ms) − __:
+* [:](https://youtu.be/eq8aRM8hdAg?t=ms) − __:
+* [:](https://youtu.be/eq8aRM8hdAg?t=ms) − __:
+* [:](https://youtu.be/eq8aRM8hdAg?t=ms) − __:
+* [:](https://youtu.be/eq8aRM8hdAg?t=ms) − __:
+* [:](https://youtu.be/eq8aRM8hdAg?t=ms) − __:
+в* [:](https://youtu.be/eq8aRM8hdAg?t=ms) − __:
+
 ## [Выпуск #90](https://youtu.be/G_RPdXuyGL4)
 
 * [1:05](https://youtu.be/G_RPdXuyGL4?t=1m05s) − _Борис_: Почему история об Адаме и Еве так сильно отличается в Ведах и в Христианстве? Суть одна, детали сильно не сходятся.
