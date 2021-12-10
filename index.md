@@ -1,6 +1,16 @@
 ## [Выпуск #92](https://youtu.be/eKs5-OkDPgc)
 
 * [2:00](https://youtu.be/eKs5-OkDPgc?t=2m00s) − _Лариса Викулина_: Если у нас есть шанс выбраться из материального рабства, почему мы названы вечно обусловленными существами, в отличие от вечно освобожденных?
+* [4:55](https://youtu.be/eKs5-OkDPgc?t=4m55s) − _Лариса Викулина_: Почему тилака у Чайтаньи с лепестком, а у Кришны без лепестка? Это как-то связано с коровами?
+* [7:05](https://youtu.be/eKs5-OkDPgc?t=7m05s) − _Сергей Д_: Если мурти уронили и сломали, потом заклеили - можно ли их оставить для поклонения?
+* [9:40](https://youtu.be/eKs5-OkDPgc?t=9m40s) − _Лариса Викулина_: Есть ли в России производитель настоящего гхи, или лучше делать самостоятельно?
+* [11:40](https://youtu.be/eKs5-OkDPgc?t=11m40s) − _Вероника_: Где можно прочитать про имена Господа Кришны?
+* [:](https://youtu.be/eKs5-OkDPgc?t=ms) − __:
+* [:](https://youtu.be/eKs5-OkDPgc?t=ms) − __:
+* [:](https://youtu.be/eKs5-OkDPgc?t=ms) − __:
+* [:](https://youtu.be/eKs5-OkDPgc?t=ms) − __:
+* [:](https://youtu.be/eKs5-OkDPgc?t=ms) − __:
+* [:](https://youtu.be/eKs5-OkDPgc?t=ms) − __:
 * [:](https://youtu.be/eKs5-OkDPgc?t=ms) − __:
 * [:](https://youtu.be/eKs5-OkDPgc?t=ms) − __:
 
