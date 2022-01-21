@@ -1,5 +1,19 @@
 [![Задать Вопрос](https://img.shields.io/badge/-%D0%97%D0%B0%D0%B4%D0%B0%D1%82%D1%8C%20%D0%92%D0%BE%D0%BF%D1%80%D0%BE%D1%81-brightgreen?style=for-the-badge&logo=apache)](http://vrajendra.ru/vopros/)
 
+## [Выпуск #96](https://youtu.be/r_kX34UAQaU)
+
+* [0:40](https://youtu.be/r_kX34UAQaU?t=0m40s) − _Ефим_: Если я повторяю 8 кругов - к чему я прийду? Это освободит меня, или недостаточно? Что такое намабхас? Это когда ум отклоняется при воспевании?
+* [:](https://youtu.be/r_kX34UAQaU?t=ms) − __:
+* [:](https://youtu.be/r_kX34UAQaU?t=ms) − __:
+* [:](https://youtu.be/r_kX34UAQaU?t=ms) − __:
+* [:](https://youtu.be/r_kX34UAQaU?t=ms) − __:
+* [:](https://youtu.be/r_kX34UAQaU?t=ms) − __:
+* [:](https://youtu.be/r_kX34UAQaU?t=ms) − __:
+* [:](https://youtu.be/r_kX34UAQaU?t=ms) − __:
+* [:](https://youtu.be/r_kX34UAQaU?t=ms) − __:
+* [:](https://youtu.be/r_kX34UAQaU?t=ms) − __:
+* [:](https://youtu.be/r_kX34UAQaU?t=ms) − __:
+
 ## [Выпуск #95](https://youtu.be/4Jj3St4rDKE)
 
 * [0:55](https://youtu.be/4Jj3St4rDKE?t=0m55s) − Дополнение к вопросу предыдущего выпуска, про цель прихода Вьясадевы.
