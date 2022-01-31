@@ -1,5 +1,23 @@
 [![Задать Вопрос](https://img.shields.io/badge/-%D0%97%D0%B0%D0%B4%D0%B0%D1%82%D1%8C%20%D0%92%D0%BE%D0%BF%D1%80%D0%BE%D1%81-brightgreen?style=for-the-badge&logo=apache)](http://vrajendra.ru/vopros/)
 
+## [Выпуск #97](https://youtu.be/XL4puvhEIMo)
+
+* [2:00](https://youtu.be/XL4puvhEIMo?t=2m00s) − _Максим_: Прохожие оскорбляют преданных на Харинаме, но получают благо, услышав Святое Имя. Что перевешивает?
+* [4:50](https://youtu.be/XL4puvhEIMo?t=4m50s) − _Кирилл_: Молоко и мед - благостные продукты, но ведь коровы и пчелы их производят для своего потомства. Не крадем ли мы, совершая грех, когда присваиваем эти продукты? Где есть прямое или косвенное указание, что мы имеем право забирать их у коров и пчел?
+* [:](https://youtu.be/XL4puvhEIMo?t=ms) − __:
+* [:](https://youtu.be/XL4puvhEIMo?t=ms) − __:
+* [:](https://youtu.be/XL4puvhEIMo?t=ms) − __:
+* [:](https://youtu.be/XL4puvhEIMo?t=ms) − __:
+* [:](https://youtu.be/XL4puvhEIMo?t=ms) − __:
+* [:](https://youtu.be/XL4puvhEIMo?t=ms) − __:
+* [:](https://youtu.be/XL4puvhEIMo?t=ms) − __:
+* [:](https://youtu.be/XL4puvhEIMo?t=ms) − __:
+* [:](https://youtu.be/XL4puvhEIMo?t=ms) − __:
+* [:](https://youtu.be/XL4puvhEIMo?t=ms) − __:
+* [:](https://youtu.be/XL4puvhEIMo?t=ms) − __:
+* [:](https://youtu.be/XL4puvhEIMo?t=ms) − __:
+* [:](https://youtu.be/XL4puvhEIMo?t=ms) − __:
+
 ## [Выпуск #96](https://youtu.be/r_kX34UAQaU)
 
 * [0:40](https://youtu.be/r_kX34UAQaU?t=0m40s) − _Ефим_: Если я повторяю 8 кругов — к чему я прийду? Это освободит меня, или недостаточно? Что такое намабхаса? Это когда ум отклоняется при воспевании?
