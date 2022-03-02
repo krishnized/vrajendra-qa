@@ -3,8 +3,8 @@
 ## [Выпуск #99](https://youtu.be/9OPvKzYkzgs)
 
 * [1:30](https://youtu.be/9OPvKzYkzgs?t=1m30s) − _Ольга_: Как совмещать духовную жизнь и комфортную материальную жизнь, но как не дать разуму прохлаждаться? Как сохранять мотив к духовности без материальных страданий?
-* [:](https://youtu.be/9OPvKzYkzgs?t=ms) − __:
-* [:](https://youtu.be/9OPvKzYkzgs?t=ms) − __:
+* [9:55](https://youtu.be/9OPvKzYkzgs?t=9m55s) − _Зуля_: Есть ли благо привязанности к животным, или это опасно?
+* [13:45](https://youtu.be/9OPvKzYkzgs?t=13m45s) − _Марина Прокопенко_: Как в обратном порядке йог должен свернуть элементы в сознании, чтобы достичь освобождения, согласно аштанга-йоге?
 * [:](https://youtu.be/9OPvKzYkzgs?t=ms) − __:
 * [:](https://youtu.be/9OPvKzYkzgs?t=ms) − __:
 * [:](https://youtu.be/9OPvKzYkzgs?t=ms) − __:
