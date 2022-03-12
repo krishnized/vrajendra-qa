@@ -1,5 +1,13 @@
 [![Задать Вопрос](https://img.shields.io/badge/-%D0%97%D0%B0%D0%B4%D0%B0%D1%82%D1%8C%20%D0%92%D0%BE%D0%BF%D1%80%D0%BE%D1%81-brightgreen?style=for-the-badge&logo=apache)](http://vrajendra.ru/vopros/)
 
+## [Выпуск #100](https://youtu.be/5agIK-RObKg)
+
+* [1:32](https://youtu.be/5agIK-RObKg?t=1m32s) − _Мальдина_: Истина - желание Бога, а в идеальном мире - в центре только личность Кришны, а все остальные исполняют его желания? Почему обусловленным душам тяжело принять эту концепцию?
+* [:](https://youtu.be/5agIK-RObKg?t=ms) − __:
+* [:](https://youtu.be/5agIK-RObKg?t=ms) − __:
+* [:](https://youtu.be/5agIK-RObKg?t=ms) − __:
+* [:](https://youtu.be/5agIK-RObKg?t=ms) − __:
+
 ## [Выпуск #99](https://youtu.be/9OPvKzYkzgs)
 
 * [1:30](https://youtu.be/9OPvKzYkzgs?t=1m30s) − _Ольга_: Как совмещать духовную жизнь и комфортную материальную жизнь, но как не дать разуму прохлаждаться? Как сохранять мотив к духовности без материальных страданий?
