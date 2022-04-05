@@ -1,5 +1,13 @@
 [![Задать Вопрос](https://img.shields.io/badge/-%D0%97%D0%B0%D0%B4%D0%B0%D1%82%D1%8C%20%D0%92%D0%BE%D0%BF%D1%80%D0%BE%D1%81-brightgreen?style=for-the-badge&logo=apache)](http://vrajendra.ru/vopros/)
 
+## [Выпуск #102](https://youtu.be/VrVRFnmitR4)
+
+* [0:25](https://youtu.be/VrVRFnmitR4?t=0m25s) − Кто такой Сатана, Люцифер, Диавол − Кали, правитель Кали-юги?
+* [:](https://youtu.be/VrVRFnmitR4?t=ms) − __:
+* [:](https://youtu.be/VrVRFnmitR4?t=ms) − __:
+* [:](https://youtu.be/VrVRFnmitR4?t=ms) − __:
+* [:](https://youtu.be/VrVRFnmitR4?t=ms) − __:
+
 ## [Выпуск #101](https://youtu.be/d4xQ2H7_Eis)
 
 * [0:40](https://youtu.be/d4xQ2H7_Eis?t=0m40s) − _Лариса_: В ШБ 3.14.21 сказано, что когда муж хвалит жену, значит он либо под каблуком, либо говорит с легкой иронией. Разве муж не может похвалить искренне?
