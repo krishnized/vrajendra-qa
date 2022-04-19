@@ -1,5 +1,12 @@
 [![Задать Вопрос](https://img.shields.io/badge/-%D0%97%D0%B0%D0%B4%D0%B0%D1%82%D1%8C%20%D0%92%D0%BE%D0%BF%D1%80%D0%BE%D1%81-brightgreen?style=for-the-badge&logo=apache)](http://vrajendra.ru/vopros/)
 
+## [Выпуск #103](https://youtu.be/Hiur5alrDOk)
+
+* [3:15](https://youtu.be/Hiur5alrDOk?t=3m15s) − _Антон Ш_: Где сказано, что Кришне нравится, когда воспевают его имена? Или это приносит удовольствие только Шримати Радхарани?
+* [:](https://youtu.be/Hiur5alrDOk?t=ms) − __:
+* [:](https://youtu.be/Hiur5alrDOk?t=ms) − __:
+
+
 ## [Выпуск #102](https://youtu.be/VrVRFnmitR4)
 
 * [0:25](https://youtu.be/VrVRFnmitR4?t=0m25s) − Кто такой Сатана, Люцифер, Диавол − Кали, правитель Кали-юги?
