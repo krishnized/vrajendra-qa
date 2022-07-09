@@ -1,5 +1,17 @@
 [![Задать Вопрос](https://img.shields.io/badge/-%D0%97%D0%B0%D0%B4%D0%B0%D1%82%D1%8C%20%D0%92%D0%BE%D0%BF%D1%80%D0%BE%D1%81-brightgreen?style=for-the-badge&logo=apache)](http://vrajendra.ru/vopros/)
 
+## [Выпуск #108](https://youtu.be/n0C2IXpGoqU)
+
+* [3:00](https://youtu.be/n0C2IXpGoqU?t=3m00s) – _Галина Кириллова_: Говорится о благословении Навальному от Господа Рамы. Как нужно относиться к политике?
+* [:](https://youtu.be/n0C2IXpGoqU?t=ms) – __:
+* [:](https://youtu.be/n0C2IXpGoqU?t=ms) – __:
+* [:](https://youtu.be/n0C2IXpGoqU?t=ms) – __:
+* [:](https://youtu.be/n0C2IXpGoqU?t=ms) – __:
+* [:](https://youtu.be/n0C2IXpGoqU?t=ms) – __:
+* [:](https://youtu.be/n0C2IXpGoqU?t=ms) – __:
+* [:](https://youtu.be/n0C2IXpGoqU?t=ms) – __:
+* [:](https://youtu.be/n0C2IXpGoqU?t=ms) – __:
+
 ## [Выпуск #107](https://youtu.be/ieErIo8z4PA)
 
 * [0:40](https://youtu.be/ieErIo8z4PA?t=0m40s) − _Инна_: В духовных обществах важен наставник. Но что делать, когда наставники поторопились с обетами и хотят материальных радостей — кафе, кино и тд., и просят, чтобы младшие с ними дружили, тк. признаться старшим и ровестникам не могут. Или устраивают интриги, чтобы выдать замуж младших за старших. Эти самскары не вдохновляют, не хочется быть использованной.
