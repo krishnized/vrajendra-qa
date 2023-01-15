@@ -1,5 +1,23 @@
 [![Задать Вопрос](https://img.shields.io/badge/-%D0%97%D0%B0%D0%B4%D0%B0%D1%82%D1%8C%20%D0%92%D0%BE%D0%BF%D1%80%D0%BE%D1%81-brightgreen?style=for-the-badge&logo=apache)](http://vrajendra.ru/vopros/)
 
+## [Выпуск 120](https://youtu.be/4kTTP6aZqjU)
+
+* [3:14](https://youtu.be/4kTTP6aZqjU?t=3m14s) – _Николай_: Демоны, бесы и т.д. - это тоже слуги Бога?
+* [7:45](https://youtu.be/4kTTP6aZqjU?t=7m45s) – _Анастасия_: Нашей дочери на улице прохожие дарят деньги, конфеты, фрукты. Мы отдаем это в храм - будет ли благо этим людям от таких пожертвований?
+* [9:55](https://youtu.be/4kTTP6aZqjU?t=9m55s) – _Олег_: Расскажите о сапта-риши?
+* [14:30](https://youtu.be/4kTTP6aZqjU?t=14m30s) – _Олимпиада_: Верите ли вы в Анунаков и Нибиру?
+* [17:13](https://youtu.be/4kTTP6aZqjU?t=17m13s) – _Николай_: Можно ли использовать спирт в медицинских целях, к примеру как дизинфекция?
+* [19:30](https://youtu.be/4kTTP6aZqjU?t=19m30s) – _Николай_: Что делать отцу, в порыве гнева проклявшего сына?
+* [26:26](https://youtu.be/4kTTP6aZqjU?t=26m26s) – _Милана из Милана_: Праноедка из Австралии - миф или реальность? Она подъедает?
+* [30:45](https://youtu.be/4kTTP6aZqjU?t=30m45s) – _Милана из Милана_: По каким духовным вопросам изменилось ваше мнение с лекций 2012-2013 года?
+* [37:55](https://youtu.be/4kTTP6aZqjU?t=37m55s) – _Милана из Милана_: Почему священников ругают, если у них есть машины, деньги и тд. Верующий обязан быть бедным? Слышала из лекций Хакимова, что благочестивый человек должен быть богатым.
+* [:](https://youtu.be/4kTTP6aZqjU?t=ms) – __:
+* [:](https://youtu.be/4kTTP6aZqjU?t=ms) – __:
+* [:](https://youtu.be/4kTTP6aZqjU?t=ms) – __:
+* [:](https://youtu.be/4kTTP6aZqjU?t=ms) – __:
+* [:](https://youtu.be/4kTTP6aZqjU?t=ms) – __:
+* [:](https://youtu.be/4kTTP6aZqjU?t=ms) – __:
+
 
 ## [Выпуск 119](https://youtu.be/U9AncrtdCzE)
 
