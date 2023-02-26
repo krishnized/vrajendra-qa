@@ -1,5 +1,23 @@
 [![Задать Вопрос](https://img.shields.io/badge/-%D0%97%D0%B0%D0%B4%D0%B0%D1%82%D1%8C%20%D0%92%D0%BE%D0%BF%D1%80%D0%BE%D1%81-brightgreen?style=for-the-badge&logo=apache)](http://vrajendra.ru/vopros/)
 
+## [Выпуск 122](https://youtu.be/zqIXH9mnFhY)
+
+* [0:30](https://youtu.be/zqIXH9mnFhY?t=0m30s) – _Григорий Чушенок_: В ШБ 8.15.13-21 описывается роскошь райских планет. В тексте 22 говорится, что туда не могли вступить грешные, завистливые, жестокие, лживые, тщеславные, похотливые, жадные. Как можно наслаждаться этими благами, не обладая определенной степенью этих пороков?
+* [5:30](https://youtu.be/zqIXH9mnFhY?t=5m30s) – _Григорий Чушенок_: В ШБ 8.16 Кашьяпа муни отказывается выполнить просьбу жены о защите их детей, сославшись что человек в беде должен искать помощи у Господа. Не пренебрег ли Кашьяпа муни долгом отца? Где грань между полагаться на Господа и на себя?
+* [:](https://youtu.be/zqIXH9mnFhY?t=ms) – __:
+* [:](https://youtu.be/zqIXH9mnFhY?t=ms) – __:
+* [:](https://youtu.be/zqIXH9mnFhY?t=ms) – __:
+* [:](https://youtu.be/zqIXH9mnFhY?t=ms) – __:
+* [:](https://youtu.be/zqIXH9mnFhY?t=ms) – __:
+* [:](https://youtu.be/zqIXH9mnFhY?t=ms) – __:
+* [:](https://youtu.be/zqIXH9mnFhY?t=ms) – __:
+* [:](https://youtu.be/zqIXH9mnFhY?t=ms) – __:
+* [:](https://youtu.be/zqIXH9mnFhY?t=ms) – __:
+* [:](https://youtu.be/zqIXH9mnFhY?t=ms) – __:
+* [:](https://youtu.be/zqIXH9mnFhY?t=ms) – __:
+* [:](https://youtu.be/zqIXH9mnFhY?t=ms) – __:
+
+
 ## [Выпуск 121](https://youtu.be/AeS3gVoJJIg)
 
 * [0:30](https://youtu.be/AeS3gVoJJIg?t=0m30s) — _Ксения_: Расскажите о своей жизни в монастыре (ашраме)? Что думаете про женские ашрамы?
