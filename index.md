@@ -5,7 +5,7 @@
 * [0:40](https://youtu.be/HVLpYj4k0hE?t=0m40s) – _Оксана_: В какой момент позволено читать Гита-Говинду Джаядева?
 * [4:00](https://youtu.be/HVLpYj4k0hE?t=4m00s) – _Мопс_: Дживы - только маленькая часть Бога. Это так, чтобы ему ничего не угрожало?
 * [6:50](https://youtu.be/HVLpYj4k0hE?t=6m50s) – _Мопс_: Сильное вожделение показатель сильной потенциальной Бхакти?
-* [:](https://youtu.be/HVLpYj4k0hE?t=ms) – __:
+* [8:45](https://youtu.be/HVLpYj4k0hE?t=8m45s) – _Наталья_: Реинкарнация происходит в согласии со шкалой времени?
 * [:](https://youtu.be/HVLpYj4k0hE?t=ms) – __:
 * [:](https://youtu.be/HVLpYj4k0hE?t=ms) – __:
 * [:](https://youtu.be/HVLpYj4k0hE?t=ms) – __:
