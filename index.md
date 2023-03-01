@@ -1,5 +1,23 @@
 [![Задать Вопрос](https://img.shields.io/badge/-%D0%97%D0%B0%D0%B4%D0%B0%D1%82%D1%8C%20%D0%92%D0%BE%D0%BF%D1%80%D0%BE%D1%81-brightgreen?style=for-the-badge&logo=apache)](http://vrajendra.ru/vopros/)
 
+## [Выпуск 123](https://youtu.be/HVLpYj4k0hE)
+
+* [0:40](https://youtu.be/HVLpYj4k0hE?t=0m40s) – _Оксана_: В какой момент позволено читать Гита-Говинду Джаядева?
+* [4:00](https://youtu.be/HVLpYj4k0hE?t=4m00s) – _Мопс_: Дживы - только маленькая часть Бога. Это так, чтобы ему ничего не угрожало?
+* [6:50](https://youtu.be/HVLpYj4k0hE?t=6m50s) – _Мопс_: Сильное вожделение показатель сильной потенциальной Бхакти?
+* [:](https://youtu.be/HVLpYj4k0hE?t=ms) – __:
+* [:](https://youtu.be/HVLpYj4k0hE?t=ms) – __:
+* [:](https://youtu.be/HVLpYj4k0hE?t=ms) – __:
+* [:](https://youtu.be/HVLpYj4k0hE?t=ms) – __:
+* [:](https://youtu.be/HVLpYj4k0hE?t=ms) – __:
+* [:](https://youtu.be/HVLpYj4k0hE?t=ms) – __:
+* [:](https://youtu.be/HVLpYj4k0hE?t=ms) – __:
+* [:](https://youtu.be/HVLpYj4k0hE?t=ms) – __:
+* [:](https://youtu.be/HVLpYj4k0hE?t=ms) – __:
+* [:](https://youtu.be/HVLpYj4k0hE?t=ms) – __:
+* [:](https://youtu.be/HVLpYj4k0hE?t=ms) – __:
+
+
 ## [Выпуск 122](https://youtu.be/zqIXH9mnFhY)
 
 * [0:30](https://youtu.be/zqIXH9mnFhY?t=0m30s) — _Григорий Чушенок_: В ШБ 8.15.13-21 описывается роскошь райских планет. В тексте 22 говорится, что туда не могли вступить грешные, завистливые, жестокие, лживые, тщеславные, похотливые, жадные. Как можно наслаждаться этими благами, не обладая определенной степенью этих пороков?
