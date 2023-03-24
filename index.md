@@ -3,6 +3,11 @@
 ## [Выпуск 124](https://youtu.be/LQKIl4E-Gkw)
 
 * [0:32](https://youtu.be/LQKIl4E-Gkw?t=0m32s) – _Евгений_: Расскажите подробнее про имя Васудева, Нараяна и Вишну?
+* [3:14](https://youtu.be/LQKIl4E-Gkw?t=3m14s) – _Евгений_: Есть ли в Ведах физиогномика, по какому принципу она работает?
+* [8:55](https://youtu.be/LQKIl4E-Gkw?t=8m55s) – _Евгений_: Что такое смирение и как его развить? Насколько важно это качество?
+* [15:20](https://youtu.be/LQKIl4E-Gkw?t=15m20s) – _Евгений_: Как научиться настоящей искренней глубокой благодарности?
+* [:](https://youtu.be/LQKIl4E-Gkw?t=ms) – __:
+* [:](https://youtu.be/LQKIl4E-Gkw?t=ms) – __:
 * [:](https://youtu.be/LQKIl4E-Gkw?t=ms) – __:
 * [:](https://youtu.be/LQKIl4E-Gkw?t=ms) – __:
 * [:](https://youtu.be/LQKIl4E-Gkw?t=ms) – __:
