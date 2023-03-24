@@ -1,5 +1,13 @@
 [![Задать Вопрос](https://img.shields.io/badge/-%D0%97%D0%B0%D0%B4%D0%B0%D1%82%D1%8C%20%D0%92%D0%BE%D0%BF%D1%80%D0%BE%D1%81-brightgreen?style=for-the-badge&logo=apache)](http://vrajendra.ru/vopros/)
 
+## [Выпуск 124](https://youtu.be/LQKIl4E-Gkw)
+
+* [0:32](https://youtu.be/LQKIl4E-Gkw?t=0m32s) – _Евгений_: Расскажите подробнее про имя Васудева, Нараяна и Вишну?
+* [:](https://youtu.be/LQKIl4E-Gkw?t=ms) – __:
+* [:](https://youtu.be/LQKIl4E-Gkw?t=ms) – __:
+* [:](https://youtu.be/LQKIl4E-Gkw?t=ms) – __:
+
+
 ## [Выпуск 123](https://youtu.be/HVLpYj4k0hE)
 
 * [0:40](https://youtu.be/HVLpYj4k0hE?t=0m40s) — _Оксана_: В какой момент позволено читать Гита-Говинду Джаядева?
