@@ -1,5 +1,10 @@
 [![Задать Вопрос](https://img.shields.io/badge/-%D0%97%D0%B0%D0%B4%D0%B0%D1%82%D1%8C%20%D0%92%D0%BE%D0%BF%D1%80%D0%BE%D1%81-brightgreen?style=for-the-badge&logo=apache)](http://vrajendra.ru/vopros/)
 
+## [Выпуск 125](https://youtu.be/mNhYwa7bt24)
+
+* [:](https://youtu.be/mNhYwa7bt24?t=ms) – __:
+
+
 ## [Выпуск 124](https://youtu.be/LQKIl4E-Gkw)
 
 * [0:32](https://youtu.be/LQKIl4E-Gkw?t=0m32s) — _Евгений_: Расскажите подробнее про имя Васудева, Нараяна и Вишну?
