@@ -1,6 +1,8 @@
 [![Задать Вопрос](https://img.shields.io/badge/-%D0%97%D0%B0%D0%B4%D0%B0%D1%82%D1%8C%20%D0%92%D0%BE%D0%BF%D1%80%D0%BE%D1%81-brightgreen?style=for-the-badge&logo=apache)](http://vrajendra.ru/vopros/)
 
-* [:](https://youtu.be/L09tUQLgrtg?si=uz-y8-W55GbQhQLq?t=ms) – __:
+## [Выпуск 138](https://youtu.be/0nm_Fkm8_Ws?si=dvQgWdwzbyDjMXH2)
+
+* [:](https://youtu.be/0nm_Fkm8_Ws?si=dvQgWdwzbyDjMXH2?t=ms) – __:
 
 
 ## [Выпуск 137](https://youtu.be/L09tUQLgrtg?si=uz-y8-W55GbQhQLq)
