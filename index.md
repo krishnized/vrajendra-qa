@@ -1,6 +1,18 @@
 [![Задать Вопрос](https://img.shields.io/badge/-%D0%97%D0%B0%D0%B4%D0%B0%D1%82%D1%8C%20%D0%92%D0%BE%D0%BF%D1%80%D0%BE%D1%81-brightgreen?style=for-the-badge&logo=apache)](http://vrajendra.ru/vopros/)
 
 
+## [Выпуск 158](https://youtu.be/UqjviWEkPvQ)
+
+* [:](https://youtu.be/UqjviWEkPvQ?t=ms) – __:
+* [:](https://youtu.be/UqjviWEkPvQ?t=ms) – __:
+* [:](https://youtu.be/UqjviWEkPvQ?t=ms) – __:
+* [:](https://youtu.be/UqjviWEkPvQ?t=ms) – __:
+* [:](https://youtu.be/UqjviWEkPvQ?t=ms) – __:
+* [:](https://youtu.be/UqjviWEkPvQ?t=ms) – __:
+* [:](https://youtu.be/UqjviWEkPvQ?t=ms) – __:
+* [:](https://youtu.be/UqjviWEkPvQ?t=ms) – __:
+
+
 ## [Выпуск 157](https://youtu.be/HWKJqvStxOg)
 
 * [3:10](https://youtu.be/HWKJqvStxOg?t=3m10s) — _Алла_: как шоколад влияет на духовное развитие?
