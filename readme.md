@@ -1,5 +1,3 @@
-# Vrajendra FAQ
+# Vrajendra Questions (redirect)
 
-Вопросы-ответы Василия Тушкина https://www.youtube.com/playlist?list=PL_Ipm4Rf9xvHEN4mzo8keCRb7EsC03xVO
-
-Перемещено в [/questions](/questions)
+Перемещено в [questions](https://github.com/krishnized/questions)
